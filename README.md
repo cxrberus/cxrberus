@@ -13,3 +13,10 @@ dni ; under 13, 20+ , pro shippers
 
 
 int ; anyone but those .. 
+
+
+"𝕯𝖆𝖓𝖈𝖊 𝖙𝖍𝖊 𝖌𝖍𝖔𝖘𝖙 𝖜𝖎𝖙𝖍 𝖒𝖊" ⋆༺𖤍༻⋆ " Lucretia my reflecton . "
+
+
+
+
