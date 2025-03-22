@@ -1,4 +1,4 @@
-![imagine alt](https://github.com/morguekitti/morguekitti/blob/8db0d71468d8a3c1a40fb5da5cae0339fbcfbfd7/026371f2f9c2ac7d93158aaf21a5eb25.gif) ⋆༺𖤍༻⋆ luffy / zoro lover
+![imagine alt](https://github.com/morguekitti/morguekitti/blob/e2834cefa471c6402b48326448544e6400166191/0b32dac8099fd5f8883d916902511add.gif) ⋆༺𖤍༻⋆ luffy / zoro lover
 
 
 ☽ ₊☸.ೃ ﹏𓊝﹏ ࿔° 𓄼 *. ☾
@@ -10,6 +10,7 @@ dni ; under 13, 20+ , pro shippers
 
 
 int ; anyone but those .. 
+![imagine alt](https://github.com/morguekitti/morguekitti/blob/e2834cefa471c6402b48326448544e6400166191/icegif-934.gif) 
 
 ☽ ₊☸.ೃ ﹏𓊝﹏ ࿔° 𓄼 *. ☾
 
