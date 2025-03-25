@@ -10,13 +10,13 @@ dni ; under 13, 20+ , pro shippers
 
 int ; anyone but those .. 
 
-
+Zoro hvykin.
 
 ![imagine alt](https://github.com/morguekitti/morguekitti/blob/e2834cefa471c6402b48326448544e6400166191/icegif-934.gif) 
 
 ☽ ₊☸.ೃ ﹏𓊝﹏ ࿔° 𓄼 *. ☾
 
-c+h open to anyone!!!
+c+h open to friends only . 
 
 i LOVE fantasy . 
 
