@@ -1,4 +1,4 @@
-![imagine alt](https://github.com/morguekitti/morguekitti/blob/e2834cefa471c6402b48326448544e6400166191/0b32dac8099fd5f8883d916902511add.gif) ⋆༺𖤍༻⋆ portgas d ace my beloved.
+![imagine alt](https://github.com/morguekitti/morguekitti/blob/e2834cefa471c6402b48326448544e6400166191/0b32dac8099fd5f8883d916902511add.gif) ⋆༺𖤍༻⋆ i love you, portgas d. ace
 
 
 
