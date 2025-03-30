@@ -2,7 +2,7 @@
 
 
 
-Buggy . Deri are my names gang . pick whatever sobs . 𖤍 i have discord so just ask . please don't annoy me for it 
+Buggy . Deri . Asher  are my names gang . pick whatever sobs . 𖤍 i have discord so just ask . please don't annoy me for it 
 
 ☽ ₊☸.ೃ ﹏𓊝﹏ ࿔° 𓄼 *. ☾
 
