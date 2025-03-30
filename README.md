@@ -1,17 +1,4 @@
-![imagine alt](https://github.com/morguekitti/morguekitti/blob/e2834cefa471c6402b48326448544e6400166191/0b32dac8099fd5f8883d916902511add.gif) ⋆༺𖤍༻⋆ i love you, portgas d. ace
-
-
-
-Buggy . Deri . Asher  are my names gang . pick whatever sobs . 𖤍 i have discord so just ask . please don't annoy me for it 
-
-☽ ₊☸.ೃ ﹏𓊝﹏ ࿔° 𓄼 *. ☾
-
-
-![imagine alt](https://github.com/morguekitti/morguekitti/blob/e2834cefa471c6402b48326448544e6400166191/icegif-934.gif) 
-
-☽ ₊☸.ೃ ﹏𓊝﹏ ࿔° 𓄼 *. ☾
-
-ASL BROTHERS ARE MY ROMAN EMPIRE .
+![imagine alt](https://github.com/morguekitti/morguekitti/blob/1b75bf5b31126bdfbd8b950047cb757a60c0ac64/8ec21e8a56a00089f88d104d6ab0f223.jpg)
 
 
 
