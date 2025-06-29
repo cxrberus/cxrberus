@@ -1,6 +1,13 @@
 ![image](https://github.com/cxrberus/cxrberus/blob/1bf2c46f40bebc18e86580b9fbaa009c665df875/eb3ea4d4eb2bf064b2c995aab0ea823f.gif)
 
-⠀⠀
-CXRBERUS . CERB   .☘︎ ݁˖ HE . THEY 
+⠀⠀·̩͙།† ͝ ︶ ͝ ⏝ ͝ ︶ ͝  ︶ ͝ ⏝ ͝ ︶ ͝  ︶ ͝ ⏝ ͝ ︶ ͝  ︶ ͝ ⏝ ͝ ︶ ͝  ︶ ͝ ⏝ ͝ ︶ ͝ †། ·̩͙
+
+
+        જ⁀➴°⋆ 𝘾𝙓𝙍𝘽𝙀𝙍𝙐𝙎 / 𝘾𝙀𝙍𝘽 .☘︎ ݁˖
+            𝙃𝙀 / 𝙏𝙃𝙀𝙔     ⋆౨ৎ˚⟡˖ ࣪
+
+         
+         
+  
                   
  
